@@ -5,6 +5,5 @@
 - 🤔 I’m looking for help with job 
 - 💬 Ask me about anything
 - 📫 How to reach me: @keshevv
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm really cool!
 -->
